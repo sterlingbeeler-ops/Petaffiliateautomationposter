@@ -1,0 +1,2 @@
+# Petaffiliateautomationposter
+privacy policy
